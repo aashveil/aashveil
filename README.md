@@ -3,10 +3,9 @@
    ${\color{#ad7294}\textsf{🅶rᥲ𝗉𝗵𝓲cs 🅱y}}$  ${\color{#b4969c}\textsf{my 🆂w𝗲ᥱt}}$   [🅻ɔv𝗲r!](https://github.com/wingedsavior)
 
    ![image alt](https://media.discordapp.net/attachments/1508748209017589841/1509786874343067820/31_sin_titulo_20260527165812.png?ex=6a1a7219&is=6a192099&hm=907042a7664c2cb833553a74cb453382b025a2315ef5065c35ea61ced80bc75c&=&format=webp&quality=lossless&width=920&height=650)
+  <h1>꒰ꦼ︶  ${\color{#ad7294}\textsf{Cakey}}$   ºr  ${\color{#b4969c}\textsf{Cairo}}$   ✿  ㅅ `͈ 𓏼 )ა</h1>
 
-  <h1> ${\color{#ad7294}\textsf{Cakey}}$   ºr  ${\color{#b4969c}\textsf{Cairo}}$ </h1>
-
-   ${\color{#ad7294}\textsf{info}}$  ${\color{#b4969c}\textsf{info}}$
+<h3>   ͜𓏼˚  ${\color{#b4969c}\textsf{istp}}$  (っ- ‸ - ς)  ${\color{#ad7294}\textsf{17y}}$   ຽ𓏼</h3>
 
    <a href="https://ilburgers.straw.page">
   <img src="https://media.discordapp.net/attachments/1508748209017589841/1509786874791596182/31_sin_titulo_20260527171532.png?ex=6a1a7219&is=6a192099&hm=feca2e0ef81e919cc0271f547a64ec182ecc453313c69d4c9872f09de66c7b92&=&format=webp&quality=lossless&width=650&height=650" width="190"> <a href="https://borgar.atabook.org/?page=1">
