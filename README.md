@@ -2,7 +2,7 @@
 
    ${\color{#ad7294}\textsf{🅶rᥲ𝗉𝗵𝓲cs 🅱y}}$  ${\color{#b4969c}\textsf{my 🆂w𝗲ᥱt}}$   [🅻ɔv𝗲r!](https://github.com/wingedsavior)
 
-   ![image alt](https://media.discordapp.net/attachments/1508748209017589841/1509786874343067820/31_sin_titulo_20260527165812.png?ex=6a1a7219&is=6a192099&hm=907042a7664c2cb833553a74cb453382b025a2315ef5065c35ea61ced80bc75c&=&format=webp&quality=lossless&width=920&height=650)
+   <img src="https://github.com/dohkoi/dohkoi/blob/09e5e4999348cb6895b11e13c0b6e89df33bcae2/31_sin_titulo_20260527165812.webp" width="800"/>
   <h1>꒰ꦼ︶  ${\color{#ad7294}\textsf{🅲akey}}$  ºr  ${\color{#debdb5}\textsf{C🅰iro}}$   ✿  ㅅ `͈ 𓏼 )ა</h1>
 
 <h3>   ͜𓏼˚  ${\color{#c3a4a5}\textsf{𝗂𝙨t𝗽}}$   (っ- ‸ - ς)   ${\color{#ad7294}\textsf{1⁷y}}$   ຽ𓏼</h3>
