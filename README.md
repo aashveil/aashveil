@@ -12,7 +12,7 @@
 
    <a href="https://ilburgers.straw.page">
   <img src="https://media.discordapp.net/attachments/1508748209017589841/1509786874791596182/31_sin_titulo_20260527171532.png?ex=6a1a7219&is=6a192099&hm=feca2e0ef81e919cc0271f547a64ec182ecc453313c69d4c9872f09de66c7b92&=&format=webp&quality=lossless&width=650&height=650" width="190"> <a href="https://borgar.atabook.org/?page=1">
-  <img src="https://media.discordapp.net/attachments/1508748209017589841/1509786875018084563/31_sin_titulo_20260527171622.png?ex=6a1a7219&is=6a192099&hm=4c4e50cfd8bd5ebcf1021ffeabc5dfe415b6f16c30832a40b45a8cbe04542135&=&format=webp&quality=lossless&width=648&height=648" width="190">
+  <img src="https://github.com/dohkoi/dohkoi/blob/f006ec295462adb75f4d69d11cb76f482a646183/31_sin_titulo_20260527171622.webp" width="190">
 </a>
 
 
