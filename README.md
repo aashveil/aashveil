@@ -1,8 +1,8 @@
 <div align="center">
 
-   ${\color{#ad7294}\textsf{🅶rᥲ𝗉𝗵𝓲cs 🅱y}}$  ${\color{#b4969c}\textsf{me!}}$
-   
-   <img src="526 sin título_20260608192707.png" width="700"/>
+   ${\color{#ad7294}\textsf{🅶rᥲ𝗉𝗵𝓲cs 🅱y:}}$  ${\color{#b4969c}\textsf{@dohkoi!}}$
+
+ <img src="526 sin título_20260608192707.png" width="700"/>
   <h1>꒰ꦼ︶  ${\color{#ad7294}\textsf{🅲akey}}$  ºr  ${\color{#debdb5}\textsf{C🅰iro}}$   ✿  ㅅ `͈ 𓏼 )ა</h1>
 
 <h3>   ͜𓏼˚  ${\color{#c3a4a5}\textsf{𝗂𝙨t𝗽}}$   (っ- ‸ - ς)   ${\color{#ad7294}\textsf{1⁷y}}$   ຽ𓏼</h3>
