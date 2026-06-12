@@ -1,6 +1,6 @@
 <div align="center">
 
-   ${\color{#ad7294}\textsf{🅶rᥲ𝗉𝗵𝓲cs 🅱y:}}$  ${\color{#b4969c}\textsf{@ASHVE1L(old dohkoi)!}}$
+   ${\color{#ad7294}\textsf{🅶rᥲ𝗉𝗵𝓲cs 🅱y:}}$  ${\color{#b4969c}\textsf{@aashveil(old dohkoi)!}}$
 
  <img src="526 sin título_20260608192707.png" width="700"/>
   <h1>꒰ꦼ︶  ${\color{#ad7294}\textsf{🅲akey}}$  ºr  ${\color{#debdb5}\textsf{C🅰iro}}$   ✿  ㅅ `͈ 𓏼 )ა</h1>
