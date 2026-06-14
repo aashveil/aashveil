@@ -14,6 +14,3 @@
   <img src="526 sin título_20260610060344.png" width="190"> <a href="https://borgar.atabook.org/?page=1">
   <img src="526 sin título_20260610060253.png" width="190">
 </a>
-
-
-WIP heh
