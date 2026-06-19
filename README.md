@@ -1,14 +1,10 @@
 <div align="center">
+   
+  <img src="527_sin_titulo_20260617053624.webp" width="500"/>
+  <h1>꒰ꦼ︶  ${\color{#707ca4}\textsf{𝓒ake𝓎}}$  ºr  ${\color{#acbbd6}\textsf{𝒞airσ}}$   ✿  ㅅ `͈ 𓏼 )ა</h1>
 
-   ${\color{#ad7294}\textsf{🅶rᥲ𝗉𝗵𝓲cs 🅱y:}}$  ${\color{#b4969c}\textsf{@aashveil(old dohkoi)!}}$
-
- <img src="526 sin título_20260608192707.png" width="700"/>
-  <h1>꒰ꦼ︶  ${\color{#ad7294}\textsf{🅲akey}}$  ºr  ${\color{#debdb5}\textsf{C🅰iro}}$   ✿  ㅅ `͈ 𓏼 )ა</h1>
-
-<h3>   ͜𓏼˚  ${\color{#c3a4a5}\textsf{𝗂𝙨t𝗽}}$   (っ- ‸ - ς)   ${\color{#ad7294}\textsf{1⁷y}}$   ຽ𓏼</h3>
-<h4>   ͜ໃ ͜͝     ${\color{#ad6f91}\textsf{🆃aken}}$   ◞།།⑅    ${\color{#dbbab3}\textsf{🅰rg}}$    ۟ ིྀ ͝</h4>
-
-<h4>    ${\color{#e4c2b9}\textsf{hsr player}}$ </h4>
+<h3>   ͜￮˚  ${\color{#acbbd6}\textsf{𝗂𝙨̲t̲𝗽}}$   (っ- ‸ - ς)   ${\color{#707ca4}\textsf{1⁷y}}$   ຽ𓏼</h3>
+<h4>   ͜ໃ ͜͝     ${\color{#707ca4}\textsf{𝕋aken}}$   ◞།།⑅    ${\color{#bbc7e7}\textsf{𝓐rg}}$    ۟ ིྀ ͝</h4>
 
    <a href="https://ilburgers.straw.page">
   <img src="526 sin título_20260610060344.png" width="190"> <a href="https://borgar.atabook.org/?page=1">
