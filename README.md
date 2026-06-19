@@ -7,6 +7,6 @@
 <h4>   ͜ໃ ͜͝     ${\color{#707ca4}\textsf{𝕋aken}}$   ◞།།⑅    ${\color{#bbc7e7}\textsf{𝓐rg}}$    ۟ ིྀ ͝</h4>
 
    <a href="https://ilburgers.straw.page">
-  <img src="526 sin título_20260610060344.png" width="190"> <a href="https://borgar.atabook.org/?page=1">
-  <img src="526 sin título_20260610060253.png" width="190">
+  <img src="527_sin_titulo_20260618224452.webp" width="190"> <a href="https://borgar.atabook.org/?page=1">
+  <img src="527_sin_titulo_20260618224959.webp" width="200">
 </a>
